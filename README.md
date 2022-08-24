@@ -1,4 +1,3 @@
-Concrétiser plus de prospects
-La combinaison de notre plateforme technologique et de notre équipe d’expert en marketing numérique forme un duo de choc pour vous donner des résultats conséquents dans les plus brefs délais. X-com Agency est fière de vous apporter des trafics de qualifiés, des techniques infaillibles pour convertir les visiteurs en clients et des outils de pointe mesurant l’efficacité des stratégies utilisées.
-Notre équipe chevronnée et expérimentée, figure parmi les meilleurs des plus grandes agences de marketing numérique dans le monde et a déjà aidé plus de 1750 clients.
-https://x-com-agency.net/
+Partiels-Droit
+La bibliothèque numérique de l'institut relie les résultats de plusieurs projets de numérisation. Elle est conçue comme une offre étroitement orientée sur les besoins des étudiants et respectant strictement les principes du libre accès. Les fiches de droit numériques sont proposées avec les métadonnées associées sur la plate-forme Partiels-Droit. 
+https://partiels-droit.com/
